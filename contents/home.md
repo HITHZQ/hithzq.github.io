@@ -5,7 +5,7 @@
 He is currently pursuing a Bachelor's Degree in Automation, at School of Astronautics, Harbin Institute of Technology, China.
 
 #### Email
-2022110636@hit.edu.cn.\
+2022110636@stu.hit.edu.cn.\
 hello546132@gmail.com
 
 #### Education
